@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Spectacles
+2. Headphones
+3. water bottle
+4. phone
